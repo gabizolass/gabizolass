@@ -9,4 +9,4 @@ sou o Gabryel
 
   ### se quiser se comunicar cmg ⬇️
 
-  -se fudeu, porque não vou passar nenhuma informação minha, não quero qualquer um  por ai vendo minhas coisas
+  -tomo no brioco, porque não vou passar nenhuma informação minha, não quero qualquer um  por ai vendo minhas coisas
