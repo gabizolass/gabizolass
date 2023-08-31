@@ -9,4 +9,4 @@ sou o Gabryel
 
   ### se quiser se comunicar cmg ⬇️
 
-  -se fudeo, porque n vou passar nenhuma informação minha
+  -se fudeu, porque não vou passar nenhuma informação minha, não quero qualquer um  por ai vendo minhas coisas
